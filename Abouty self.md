@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Manju naik
 - 👀 I’m interested in hacking 
-- 🌱 I’m currently hacking  course
+- 🌱 I’m currently learning hacking  course
 - 💞️ I’m looking very silent boy but really im bad ..
 - 📫 I love money...
 - 😄 every thing is temporary..
